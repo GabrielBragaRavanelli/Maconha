@@ -15,7 +15,9 @@ Entre os argumentos para a legalização, temos:
  - O volume de impostos que a maconha arrecada, seria grande o suficiente para implementar políticas públicas.
  - Prevenir crimes relacionados às drogas, tais como roubos, furtos e o próprio tráfico. Além da diminuição da população carcerária.
  - O princípio ativo da maconha é utilizado para tratamento de diversas doenças(epilepsia, parkinson, alzheimer, dor crônica, burnout, etc)
-  
+ 
+ 
+Conclusâo  
 - Diante desses argumentos, o nosso grupo chegou na conclusão de que, no uso da maconha deveria ser legalizado no Brasil, pois a licitude desta planta faria com que 27% da população carcerária diminuísse e, assim, libertando os indivíduos que foram condenados por 5 anos por carregarem consigo “farelos” de maconha, que equivale a 0,3g. Além disso, diminuindo também a população dos crimes  contra o patrimônio, como furto e roubo.
 
 
