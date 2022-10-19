@@ -15,12 +15,12 @@
 -MACONHA
 - Para começarmos, a maconha, a droga mais polêmica do mundo, apresentou seu primeiro registro no ano de 27.000 a.C. A planta tem origem no Afeganistão e segundo documento oficial do governo brasileiro (Ministério das Relações Exteriores, 1959): "A planta teria sido introduzida em nosso país, a partir de 1549, pelos negros escravos, como alude Pedro Corrêa, e as sementes de cânhamo eram trazidas em bonecas de pano, amarradas nas pontas das tangas" (Pedro Rosado). Portanto, além da planta ser economicamente positiva e utilizada como matéria-prima para fibra têxtil principalmente da elite, sua imagem ficou marcada e associada pelas baixas classes sociais, como: pobres, negros e indigenas. Entretanto, com o processo de urbanização, a população imigrante foi vista como fonte de problema sanitário, sendo assim, o primeiro documento proibindo o uso da maconha foi da Câmara Municipal do Rio de Janeiro, em 1830 e, além disso, foram criadas delegacias, Inspetoria de Entorpecentes, Tóxicos e Mistificações, que eram responsáveis por reprimir os indivíduos que usufruem da maconha. Diante disso, nosso grupo trouxe diversos argumentos sobre a proibição e legalização da maconha.
 
--Entre os argumentos para a proibição, temos:
+- Entre os argumentos para a proibição, temos:
  -Usuários de drogas podem causar danos e sofrimentos a si mesmos e a outras pessoas.
  -Os usuários de drogas são menos produtivos e têm maior chance de morte prematura.
  -Os usuários de drogas devem ser protegidos contra eles mesmos, na medida em que eles atuam de forma autodestrutiva.
 
--Entre os argumentos para a legalização, temos:
+- Entre os argumentos para a legalização, temos:
  -O volume de impostos que a maconha arrecada, seria grande o suficiente para implementar políticas públicas.
  -Prevenir crimes relacionados às drogas, tais como roubos, furtos e o próprio tráfico. Além da diminuição da população carcerária.
  -O princípio ativo da maconha é utilizado para tratamento de diversas doenças(epilepsia, parkinson, alzheimer, dor crônica, burnout, etc)
