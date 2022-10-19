@@ -38,4 +38,4 @@
 
 - https://www.google.com/amp/s/economia.uol.com.br/noticias/redacao/2022/09/16/quanto-o-brasil-poderia-arrecadar-em-impostos-com-a-legalizacao-da-maconha.amp.htm
 
-https://saude.abril.com.br/bem-estar/maconha-como-remedio/
+- https://saude.abril.com.br/bem-estar/maconha-como-remedio/
